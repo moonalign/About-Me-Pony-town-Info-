@@ -8,7 +8,7 @@ Moon/Kira but my friends and siblings call me Kiri for short, I’m an artist, m
 
 
 
-⟡ - Pony Town - ⊹
+⟡ - Status - ⊹
    
    🟢 Online : Usally off tab or watching something probably youtube/Anime or drawing
 
