@@ -10,7 +10,7 @@ Moon/Kira but my friends and siblings call me Kiri for short, I’m an artist, m
 
 ⟡ - Status - ⊹
    
-   🟢 Online : Usally off tab or watching something probably youtube/Anime or drawing
+   🟢 Online : Usally off tab or watching something probably youtube/Anime or drawing or watching Minecrafters on TWitch
 
    ⛔ Busy : Usally whipsering others or talking with friends, but feel free to Whisper! 
 
