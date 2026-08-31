@@ -34,7 +34,7 @@ If you found me on pony town hello! Please do not copy, steal, claim, screenshot
 
 ⟡ - Do not int if you are - ⊹
 
-Minors, Homophobic, Transphobic, People who forces religion, Weirdos, Bullies, People who tell others to hurt themselves, RariSpike shippers Spike is a child in MLP and rarity is a full grown mare ..... Toxic IzuOcha Shippers Toxic MHA fans, Weird/Gross MHA ships, Toxic TwiPie Shippers, Trolls others for no random reason it's not funny, People Who do weird ass fucking shit with horses that's disgusting..... coughs (NSFW) this Includes art, being Racist towards others.
+Minors, Homophobic, Transphobic, People who forces religion, Weirdos, Bullies, People who tell others to hurt themselves, RariSpike shippers Spike is a child in MLP and rarity is a full grown mare ..... Toxic IzuOcha Shippers Toxic MHA fans, Weird/Gross MHA ships, Toxic TwiPie Shippers, Trolls others for no random reason it's not funny, People Who do weird ass fucking shit with horses that's disgusting..... coughs (NSFW) this Includes art, being Racist towards others, Ableists. 
 
 Minors Stay 45 feet away pls don’t chat with me on pony town or I will block you. Like 18+ are fine if you're under that age do not int, and also please get off the 18+ server if you are not 18 it's not safe for you to be on there! <3
 
